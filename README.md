@@ -1,3 +1,3 @@
 # TryHackME-RedBox
 
-Waddup Nigga Waddup
+Waddup Nigga Waddup Nigga
